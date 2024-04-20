@@ -11,17 +11,9 @@
 
 ![木桌上最好的华硕路由器华硕 RT-AX58U
 
-（图片来源：未来）
-
 ### [1.华硕RT-AX58U]
 
 整体上最好的华硕路由器
-
-[
-
-我们的专家评审：
-
-](https://www.techradar.com/reviews/asus-rt-ax58u)
 
 #### 规格
 
